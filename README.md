@@ -1,11 +1,11 @@
-Hey! I'm Lia, a Computer Science student majoring in Data Science at Central Philippine University.
+Hey! I'm Llarie Salinas 👋
 
-I'm passionate about tech, problem-solving, and creating content. I've worked with Python, JavaScript, R, C#, and more, exploring software development and data analysis.
+💻 Studying CS majoring in Data Science at Central Philippine University — exploring tech, problem-solving, and learning to build impactful projects. Experienced in Python, JavaScript, R, C#, and more.
 
-Outside of my studies, I share my tech journey on YouTube and make content on TikTok, reaching over 20k followers and 800k+ views.
+📹 Outside my studies, I create content on YouTube and TikTok, sharing my tech journey and student life. I’ve connected with over 20k followers and gained 800k+ views on TikTok.
 
 Let's connect!
 📧 Email: llariesalinas@gmail.com
-📌 LinkedIn: LinkedIn
-📌 YouTube: @LLARIE
-📌 TikTok: @llarie
+🔗 LinkedIn: LinkedIn
+🎥 YouTube: @LLARIE
+📱 TikTok: @llarie
