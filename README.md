@@ -6,6 +6,9 @@ Hey! I'm Llarie Salinas 👋
 
 Let's connect!
 📧 Email: llariesalinas@gmail.com
+
 🔗 LinkedIn: [Llarie Salinas](https://www.linkedin.com/in/llariesalinas/)
+
 🎥 YouTube: [@llarie](https://www.youtube.com/@llarie)
+
 📱 TikTok: [@itsllarie](https://www.tiktok.com/@itsllarie)
