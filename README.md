@@ -5,6 +5,7 @@ Hey! I'm Llarie Salinas 👋
 📹 Outside my studies, I create content on YouTube and TikTok, sharing my tech journey and student life. I’ve connected with over 20k followers, gained 7.5M+ views on TikTok, and 100k+ views on YouTube
 
 Let's connect!
+
 📧 Email: llariesalinas@gmail.com
 
 🔗 LinkedIn: [Llarie Salinas](https://www.linkedin.com/in/llariesalinas/)
