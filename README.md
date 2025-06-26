@@ -12,4 +12,4 @@ Let's connect!
 
 🎥 YouTube: [@llarie](https://www.youtube.com/@llarie)
 
-📱 TikTok: [@itsllarie](https://www.tiktok.com/@itsllarie)
+📱 TikTok: [@itsllarie](https://www.tiktok.com/@llariesalinas)
